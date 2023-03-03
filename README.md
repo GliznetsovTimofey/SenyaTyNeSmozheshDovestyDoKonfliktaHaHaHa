@@ -1,0 +1,2 @@
+# SenyaTyNeSmozheshDovestyDoKonfliktaHaHaHa
+Ladno smozhesh
